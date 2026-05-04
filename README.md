@@ -1,0 +1,1 @@
+# GeneratorSoal-PartnerGuru
